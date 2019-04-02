@@ -1,0 +1,2 @@
+# phim-c-ch-nhi-t-hoa-ph-t
+Cách nhiệt, chống nóng, tiết kiệm nhiên liệu: chức năng quan trọng nhất của phim cách nhiệt cần kể đến đầu tiên là tính năng chống nóng. Tổng cản nhiệt của dòng kính lái lên đến 70%, đối với dòng kính cửa sổ hông và kính hậu lên đến 90%, điều đó cho thấy dán phim cách nhiệt đem lại sự dịu mát cho xe, tiết kiệm nhiên liệu tiêu hao trong quá trình làm lạnh.  #giay_dan_kinh #decal_dan_kinh #dan_kinh_hoa_phat #phim_cach_nhiet
